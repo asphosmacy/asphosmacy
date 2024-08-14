@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @asmophacy
+- 👀 I’m interested in tech-computer
+- 🌱 I’m currently learning linux
+- 💞️ I’m looking to collaborate on something
+- 📫 How to reach me: dms on my discord asmophacy_astropical
+- 😄 Pronouns:he/him
+- ⚡ Fun fact: i am a windows 11 enjoyer!
+- ending failed to load press to try again
